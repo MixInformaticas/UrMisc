@@ -1,3 +1,3 @@
-não choraxxx
+não choraxxx.
 este aplicativo é uma copia do Spotify...
-então é melhor aqui do que la kakakkakkakakak
+então é melhor aqui do que la kakakkakkakakak.
